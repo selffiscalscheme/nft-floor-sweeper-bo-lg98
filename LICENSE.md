@@ -1,4 +1,4 @@
-# 
+# updated nft floor sweeper bot | whitelist-bypass + floor-sweeping is the best nft floor sweeper bot, featuring whitelist-bypass and floor-sweeping. Fast, smart, and optimized for
 
 
 
